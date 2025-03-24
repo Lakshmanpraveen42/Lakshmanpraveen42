@@ -22,7 +22,7 @@ I'm an **AI & ML Enthusiast | WordPress Developer | Photographer** passionate ab
 
 ## 📫 How to Reach Me
 - 📧 Email: **lakshmanpraveen4389@gmail.com**  
-- 💼 LinkedIn: [Your LinkedIn Profile](www.linkedin.com/in/lakshmanpraveenvulasi)  
+- 💼 LinkedIn: [Lakshman Praveen Vulasi](https://www.linkedin.com/in/lakshmanpraveenvulasi)
 
 ## ⚡ Fun Fact
 I enjoy capturing moments through photography and experimenting with new AI models to create smart solutions! 🎯📷  
